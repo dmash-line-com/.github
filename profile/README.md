@@ -19,7 +19,7 @@ Instagram
 ジモティー
 -->
 
-👉 LINE公式アカウント：
+👉 LINE公式アカウント：https://lin.ee/dHbAsr2
 
 👉 Instagram：
 
