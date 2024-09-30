@@ -14,7 +14,13 @@
 -->
 
 <!--
-LINE Official Account
+LINE公式アカウント
 Instagram
 ジモティー
 -->
+
+👉 LINE公式アカウント：
+
+👉 Instagram：
+
+👉 ジモティー：
