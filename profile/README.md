@@ -21,6 +21,6 @@ Instagram
 
 👉 LINE公式アカウント：https://lin.ee/dHbAsr2
 
-👉 Instagram：
+👉 Instagram：[garage_mash](https://www.instagram.com/garage_mash/)
 
 👉 ジモティー：
