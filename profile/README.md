@@ -28,3 +28,5 @@ Instagram
 <!--
 https://www.navikuru.jp/traders/garagemash/
 -->
+
+👉 お問い合わせ先メールアドレス：<a href="mailto:contact@garage-mash.com">contact@garage-mash.com</a>
