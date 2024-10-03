@@ -24,3 +24,7 @@ Instagram
 👉 Instagram：[garage_mash](https://www.instagram.com/garage_mash/)
 
 👉 ジモティー：[GarageMASH](https://jmty.jp/profiles/5b4340fb1d2bfb239b1fedfb)
+
+<!--
+https://www.navikuru.jp/traders/garagemash/
+-->
